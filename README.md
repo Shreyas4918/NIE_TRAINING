@@ -2,5 +2,5 @@
 
 shreyas shanbhogue nie mysore north 
 
-hello i am from mmysore
+hello i am from 
 
