@@ -1,2 +1,2 @@
 # NIE_TRAINING
-shreyas shanbhogue
+shreyas shanbhogue nie mysore north 
